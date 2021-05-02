@@ -1,1 +1,1 @@
-Hi! My name is Dowon Kim, a Computer Science Student in Georgia Tech.
+Hi! My name is Dowon Kim, a Computer Science Student at Georgia Tech.
