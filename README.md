@@ -6,6 +6,6 @@ Hello, I am a **Developer🖥** and a **Music Geek🎹** at Georgia Tech.
   
 Contact Me! dwkim16@gmail.com
   
-  +) 10k subscribed Music Youtube🎧 if you're interested: [Dowon Music](https://www.youtube.com/channel/UCoGx5SrPcZ4-3D5LS-dsjUQ)
+  + 10k subscribed Music Youtube🎧 if you're interested: [Dowon Music](https://www.youtube.com/channel/UCoGx5SrPcZ4-3D5LS-dsjUQ)
 
 </div>
